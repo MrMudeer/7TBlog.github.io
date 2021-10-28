@@ -10,3 +10,5 @@ We're 7T. We have the following qualities
 - We are very weird 
 
 What else do you need?
+
+We are so smart
